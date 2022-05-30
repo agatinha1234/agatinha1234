@@ -1,10 +1,10 @@
 - 👋 ola meu nome é @agatinha
-- 👀 meu email de contato é agatata.camargo@escola.pr.gov.br
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-
-<!---
-agatinha1234/agatinha1234 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- 👀 tenho um sonho de ser veterinaria
+- 🌱 meus pais são agricultores mecho muito com animais tenho um dom,carinho pelos animais 
+- 💞️ meu namorado e meio ciumento meio não muito kkk mais amo ele nois tem um sonho de casar se der tudo certo mais pra frente 
+- 📫 moro no sitio tenho minha propio moto batalhei pra comprar mais consegui tenho um cavalo chamado kakau
+- tenho 9 irmãos 
+- teno minha propia casa ano que vem eu e meu namorado vamo se mudar ele tem a dele que ele comppro ele vai alugar 
+-trabalho com maquinarios meu namorado é garçom trabalha no vagão lanches um restaurante popular
+- sou baba de minhas 2 primas 
+- gosto de trabalhar sempre to a disposição para trabalho eu planto colho tiro leite pra muita gente ganho 3000 por mes
