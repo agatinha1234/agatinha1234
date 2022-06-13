@@ -1,6 +1,6 @@
 - 👋 ola meu nome é @agatinha
 - 👀 tenho um sonho de ser veterinaria
-- 🌱 meus pais são agricultores eu   
+- 🌱 meus pais são agricultores eu tambem kkk 
 - 💞️ meu namorado e meio ciumento meio não muito kkk mais amo ele 
 - 📫 moro no sitio tenho minha propio moto batalhei pra comprar ralei muito pra chegar onde estou
 - tenho 9 irmãos 
