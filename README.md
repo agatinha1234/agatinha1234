@@ -1,10 +1,11 @@
 - 👋 ola meu nome é @agatinha
 - 👀 tenho um sonho de ser veterinaria
-- 🌱 meus pais são agricultores mecho muito com animais tenho um dom,carinho pelos animais 
+- 🌱 meus pais são agricultores eu   
 - 💞️ meu namorado e meio ciumento meio não muito kkk mais amo ele nois tem um sonho de casar se der tudo certo mais pra frente 
-- 📫 moro no sitio tenho minha propio moto batalhei pra comprar mais consegui tenho um cavalo chamado kakau
+- 📫 moro no sitio tenho minha propio moto batalhei pra comprar ralei muito pra chegar omde estou
 - tenho 9 irmãos 
 - teno minha propia casa ano que vem eu e meu namorado vamo se mudar ele tem a dele que ele comppro ele vai alugar 
 -trabalho com maquinarios meu namorado é garçom trabalha no vagão lanches um restaurante popular
-- sou baba de minhas 2 primas 
-- gosto de trabalhar sempre to a disposição para trabalho eu planto colho tiro leite pra muita gente ganho 3000 por mes
+- sou baba de minhas primas 
+- gosto de trabalhar sempre to a disposição para trabalho eu planto colho tiro leite ganhos tres mil por mes
+minha melhor amiga  e ingrid amo muito ela e como uma irma minha princesakkkkkk
